@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ZamirBezgeyev
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...tyejnseyjrsyhjnsf
+- 🌱 I’m currently learning ...hlykigkhbjgyuhj
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...gvifcughjnkjm
 - 😄 Pronouns: .
