@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...bgshtrhb
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...hyuhjhgvfyhj
+- 📫 How to reach me ...frdsyrguhji
 - 😄 Pronouns: .
 - ⚡ Fun fact: gtfryedtfyguhjk
 <!---
